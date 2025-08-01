@@ -1,1 +1,1 @@
-## Professional aura farmer @Universe
+## Professional aura farmer @ Universe
